@@ -2,6 +2,8 @@
 
 O site [padrepauloricardo.org](https://padrepauloricardo.org/episodios/o-que-significa-christo-nihil-praeponere) traz a seguinte epígrafe: "**Christo nihil praeponere - a nada dar mais valor que a Cristo**" e muitos perguntam o que ela, de fato, significa e de onde foi extraída. A expressão foi encontrada pela primeira vez nos escritos de São Cipriano de Cartago (texto abaixo). Um século depois ela foi retomada por Santo Agostinho no seu "Comentário aos Salmos" e, finalmente, por São Bento que a cita duas vezes em sua "Regra". Por causa disso, ganhou notoriedade e ficou conhecida como um moto beneditino, apesar de ser bem mais antiga.
 
+## **Christo nihil praeponere - a nada dar mais valor que a Cristo**
+
 A expressão tem como sentido profundo um chamado à vida de santidade. Ela foi colocada no frontispício do site exatamente para incutir a necessidade de se atender a esse chamado. "A segunda decolagem", "Esforçai-vos para entrar pela porta estreita" são alguns dos vídeos do site que possuem a mesma dinâmica: não basta seguir os mandamentos da lei de Deus e viver como cristãos de "salário-mínimo", necessário mesmo é o Amor. Nada colocar antes do amor que se deve ter a Cristo. Esta é a prioridade.
 
 Da mesma maneira que na época de São Cipriano, ainda hoje a Igreja sofre perseguições. Naquela época, comum era a perseguição cruenta. Atualmente, esse tipo de ataque ainda existe em vários países, mas o que se vê aqui no Brasil é uma perseguição ideológica que, embora produza injustiças e sofrimentos ela é, geralmente, incruenta. Contudo, da mesma forma que na época de São Cripriano, todos são chamados ao martírio. Urge tomar uma posição.
@@ -22,4 +24,4 @@ Christo nihil praeponere. A nada dar mais valor que a Cristo. A nada dar mais va
 
 [Padre Paulo Ricardo](https://padrepauloricardo.org/episodios/o-que-significa-christo-nihil-praeponere)
 
-# **Christo nihil praeponere - a nada dar mais valor que a Cristo**
+## **Christo nihil praeponere - a nada dar mais valor que a Cristo**
