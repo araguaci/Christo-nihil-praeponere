@@ -28,5 +28,6 @@ Por fim, um detalhe quanto à pronúncia da expressão Christo nihil praeponere.
 Christo nihil praeponere. A nada dar mais valor que a Cristo. A nada dar mais valor que ao seu amor, exatamente porque Cristo a nada deu mais valor que a nós.
 
 [Padre Paulo Ricardo](https://padrepauloricardo.org/episodios/o-que-significa-christo-nihil-praeponere)
+[Fonte Original](https://padrepauloricardo.org/episodios/o-que-significa-christo-nihil-praeponere)
 
 ## **Christo nihil praeponere - a nada dar mais valor que a Cristo**
